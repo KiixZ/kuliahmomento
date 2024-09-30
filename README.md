@@ -1,0 +1,1 @@
+momentos kuliahos anjayos mabaros
